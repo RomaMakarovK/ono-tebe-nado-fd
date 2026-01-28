@@ -1,1 +1,1 @@
-https://github.com/RomaMakarovK/ono-tebe-nado-ad
+https://github.com/RomaMakarovK/ono-tebe-nado-fd
